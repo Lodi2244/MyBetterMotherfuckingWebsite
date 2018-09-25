@@ -1,1 +1,1 @@
-# MyBetterMotherfuckingWebsite is live !! Link's right there :  https://lodi2244.github.io/MyBetterMotherfuckingWebsite/  Enjoy ;)
+# MyBetterMotherfuckingWebsite is live !! If you want to take a good look at my very own version of MotherFucking Website the link's right there :  https://lodi2244.github.io/MyBetterMotherfuckingWebsite/  Enjoy ;)
